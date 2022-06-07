@@ -1,1 +1,0 @@
-# SUPKE_budova_AR-glmnd
